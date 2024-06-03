@@ -9,6 +9,8 @@ Meu nome é Jenifer Rodrigues
   ### você entra em contato comigo📫
 
   00001107859232sp@al.educacao.sp.gov.br
+  
+  jenirdg03@gmail.com
 
 ![](https://media1.tenor.com/m/hGOQy4er94IAAAAC/bts-bangtan-boys.gif)
   

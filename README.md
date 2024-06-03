@@ -1,4 +1,4 @@
-## BOAS VINDAS AO MEU PERFIL🖤
+## BOAS VINDAS AO MEU PERFIL🏹🖤
 
 Meu nome é Jenifer Rodrigues
 
@@ -13,4 +13,3 @@ Meu nome é Jenifer Rodrigues
   jenirdg03@gmail.com
 
 ![](https://media1.tenor.com/m/hGOQy4er94IAAAAC/bts-bangtan-boys.gif)
-  
